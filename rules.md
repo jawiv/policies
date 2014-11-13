@@ -34,7 +34,7 @@ Don’t post anything inappropriate about minors, including things that are viol
 There’s enough of that going on by big internet and governments around the world.
 
 **Don’t post sexually explicit content without flagging your profile Not Suitable for Work (NSFW).**
-NSFW flagging in is development. This policy will go into effect as soon flagging is completed. We respect the diverse views of the Ello community. Not everyone wants to see sexually explicit content. If you regularly post this sort of content, please respect those in our community who do not wish to see it by flagging your profile NSFW. Doing so will screen your Profile’s content from Ello users who would prefer not to see it.
+NSFW flagging is in development. This policy will go into effect as soon flagging is completed. We respect the diverse views of the Ello community. Not everyone wants to see sexually explicit content. If you regularly post this sort of content, please respect those in our community who do not wish to see it by flagging your profile NSFW. Doing so will screen your Profile’s content from Ello users who would prefer not to see it.
 
 Ello’s rules expressly forbid posting abusive content of any kind, including sexually explicit content that portrays or encourages violence towards people or animals.
 
